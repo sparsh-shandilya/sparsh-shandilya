@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sparsh-shandilya
-- 👀 I’m interested in making stuff, drawing manga panels, making terrariums, astrophotography, learning new things, macro photography, having fun with my jumping spider, reading books, gaming , 
+- 👀 I’m interested in making stuff, drawing manga panels, making terrariums, astrophotography, learning new things, macro photography, having fun with my jumping spider, reading books, gaming 
 - 🌱 I’m currently learning lua for my roblox game
 - 💞️ I’m looking to collaborate on my game project
 - 📫 How to reach me discord:dandagaming9358 , instagram: sparsh_shandilya
